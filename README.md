@@ -1,0 +1,3 @@
+# Sentinals-Lakshmi-SIH
+
+[![Open in Bolt](https://bolt.new/static/open-in-bolt.svg)](https://bolt.new/~/sb1-nqh8bqu5)
